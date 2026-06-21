@@ -15,7 +15,7 @@
 **Time is like music**
 </p>
 
-*Play it 'til the end and then reset*
+*Play it 'til the end and* ***then reset***
 </p>
 
 **Knowing it all, am I destined to fall?**
